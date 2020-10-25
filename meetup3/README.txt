@@ -1,6 +1,7 @@
 Meetup #3 (7 Haziran 2020)
 ========================
 
+Sunum video kayıtları: https://archive.org/details/ttmo_meetup3
 
 Konular
 ------------------------
